@@ -316,6 +316,8 @@ Since I'm running so slowly: Let's make some videos during our runs and races! I
 
 1.  __Pink Fest Run:__ [Part 1](https://youtube.com/shorts/KKx1FuteHMw) / [Part 2](https://youtube.com/shorts/8UXgujTC6t0) / [Part 3](https://youtube.com/shorts/EygIBkz0jfw) / [360-degree](https://youtu.be/cbOaqV-kVPg)
 
+1.  __Geylang River Run:__ [Part 1](https://youtube.com/shorts/8HA_1wFZ1b8) / [Part 2](https://youtube.com/shorts/L1LpnmhlSZg) / [Part 3](https://youtube.com/shorts/pVe1auEcVsQ) / [360-degree](https://youtu.be/GkqnLH0FkAM)
+
 ![Body Glide and Micropore Tape](https://lupyuen.github.io/images/marathon-bodyglide.jpg)
 
 # Appendix: Troubleshoot Our Marathon
