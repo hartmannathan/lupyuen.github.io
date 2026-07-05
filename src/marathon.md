@@ -318,6 +318,8 @@ Since I'm running so slowly: Let's make some videos during our runs and races! I
 
 1.  __Geylang River Run:__ [Part 1](https://youtube.com/shorts/8HA_1wFZ1b8) / [Part 2](https://youtube.com/shorts/L1LpnmhlSZg) / [Part 3](https://youtube.com/shorts/pVe1auEcVsQ) / [360-degree](https://youtu.be/GkqnLH0FkAM)
 
+1.  __21 km GU Forest Force Run:__ [Part 1](https://youtube.com/shorts/krUu2ASR-6c?feature=share) / [Part 2](https://youtube.com/shorts/sPj4u4pxv0I?feature=share) / [Part 3](https://youtube.com/shorts/RRHHGBxzJ9Y?feature=share) / [Part 4](https://youtube.com/shorts/rxAbs4ulTrQ?feature=share) / [360-degree](https://youtu.be/eMi-j4oFync)
+
 ![Body Glide and Micropore Tape](https://lupyuen.github.io/images/marathon-bodyglide.jpg)
 
 # Appendix: Troubleshoot Our Marathon
