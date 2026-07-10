@@ -320,6 +320,8 @@ Since I'm running so slowly: Let's make some videos during our runs and races! I
 
 1.  __21 km GU Forest Force Run:__ [Part 1](https://youtube.com/shorts/krUu2ASR-6c?feature=share) / [Part 2](https://youtube.com/shorts/sPj4u4pxv0I?feature=share) / [Part 3](https://youtube.com/shorts/RRHHGBxzJ9Y?feature=share) / [Part 4](https://youtube.com/shorts/rxAbs4ulTrQ?feature=share) / [360-degree](https://youtu.be/eMi-j4oFync)
 
+1.  __Sheares Bridge Run:__ [Part 1](https://youtube.com/shorts/eyeQBE0sCl4) / [Part 2](https://youtube.com/shorts/3XiN-6hUVmY) / [Part 3](https://youtube.com/shorts/3pPBaAUyMmE) / [360-degree](https://youtu.be/aEj1DYJCmnk)
+
 ![Body Glide and Micropore Tape](https://lupyuen.github.io/images/marathon-bodyglide.jpg)
 
 # Appendix: Troubleshoot Our Marathon
